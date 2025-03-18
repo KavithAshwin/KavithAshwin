@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently studying
+Hello there! I'm Kavith, an enthusiastic undergraduate student studying at SLIIT University in SriLanka.
 
 
 ## 🌐 Socials:
